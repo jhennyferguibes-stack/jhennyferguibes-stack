@@ -4,7 +4,7 @@ Meu nome é Jhennyfer
 
 -14y
 
--aluna de robótica 
+-aluna de robótica
 
 -Estudo no cólegio Manoel Ribas 
 
