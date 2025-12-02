@@ -1,12 +1,12 @@
 ## Hi there 👋
 
-Meu nome é Jhennyfer 
+Meu nome é Jhennyfer 💙
 
--14y
+- 14y ⭐
 
--aluna de robótica
+- aluna de robótica 💻
 
--Estudo no cólegio Manoel Ribas 
+- Estudo no cólegio Manoel Ribas
 
 -Guarapuava-Pr
 
