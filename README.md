@@ -1,16 +1,15 @@
 ## Hi there 👋
 
-<!--
-**jhennyferguibes-stack/jhennyferguibes-stack** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é Jhennyfer 
 
-Here are some ideas to get you started:
+-14y
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+-aluna de robótica 
+
+-Estudo no cólegio Manoel Ribas 
+
+-Guarapuava-Pr
+
+
+![](https://media1.tenor.com/m/89BWlKhneCAAAAAd/max-verstappen.gif)
+
